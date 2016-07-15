@@ -1,0 +1,1 @@
+# uprzejmiedonosze.pl
